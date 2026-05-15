@@ -1,4 +1,4 @@
-
+Enhance your TunnelBear experience with TunnelBear best Extension: kill-switch & multi-protocol-support, the #1 extension. Includes kill-switch and multi-protocol-support for a
 
 
 
